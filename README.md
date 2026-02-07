@@ -1,3 +1,3 @@
 # collegedemo
-lets make it succesful together.<br>
+Lets make it succesful together.<br>
 TEAM MEMBERS:-<br>
